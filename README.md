@@ -4,7 +4,7 @@
 
 ## Cultural Heritage
 
-### Tahlequa, Oklahoma
+### Tahlequah, Oklahoma
 
 I wanted to discuss for a moment where I grew up Tahlequah, Ok. Tahlequah is the capital of the Cherokee Nation and is full of cultural heritage. There is the old female seminary at NSU, Hunters Home in Park Hill, Ok, a tiny town that is essentially Tahlequah yet interesting, the Cherokee Capital building, and others. One aspect though that I would relate is that a bust of Gen. Stand Watie, who fought for the Confederacy, that was built by the United Daughters of the Confederacy was removed in 2020. One idea that I wrestle with is whether to save these monuments in a form, original, photographic, or otherwise, or to absolutely destroy them. I want to argue for their preservation in some form in an American History Museum or an archives as a way of study and to remember that as ugly as the thought is they are and were part of our heritage. Not all heritage is pretty. They represent a time and place that was ugly and horrid yet existed. Yet the idea of preservation strikes the wrong cord for me at times as I question if they deserve even preservation. The idea though is to put them into context. To utilize them as a discussion of feelings and attitudes that existed, ask how we can overcome those prejudices, and continue to improve to better our society, our heritage, and each other.
 
