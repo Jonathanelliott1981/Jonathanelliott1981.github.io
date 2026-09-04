@@ -12,7 +12,7 @@ If anyone is interested it can be searched via Stand Watie bust Tahlequah. I rem
 
 ### links
 
-This is a link to a short journal article from July. This while unable to fully discuss the complicated history of the Cherokee people and their shared history in the United States it does give a good overview. It discusses how memory and ideas within a community can change. Also, I willing chose not to include a picture of the bust. 
+This is a link to a short journal article from July. This while unable to fully discuss the complicated history of the Cherokee people and their shared history in the United States it does give a good overview. It discusses how memory and ideas within a community can change. Also, I willing chose not to include a picture of the bust. Instead I posted a photo of a sculpture I took at the National Cowboy & Western Heritage Museum of Abraham Lincoln. While he is controversial in his own right it is less so than others and appropriate to a Civil War discussion.
 
 [(https://www.journalofthecivilwarera.org/2026/07/the-stand-watie-monument-the-lost-cause-and-oklahoma-cherokee-memory-of-the-civil-war/)]
 
