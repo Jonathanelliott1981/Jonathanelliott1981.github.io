@@ -16,6 +16,6 @@ This is a link to a short journal article from July. This while unable to fully 
 
 [(https://www.journalofthecivilwarera.org/2026/07/the-stand-watie-monument-the-lost-cause-and-oklahoma-cherokee-memory-of-the-civil-war/)]
 
-![Abraham Lincoln Sculpture at the National Cowboy & Western Heritage Museum in OKC, OK] (img-022.jpg)
+![Abraham Lincoln Sculpture at the National Cowboy & Western Heritage Museum in OKC, OK] (img-0022.jpeg)
 
 This work is licensed under <a href="https://creativecommons.org/licenses/by-nc-nd/4.0/">CC BY-NC-ND 4.0</a><img src="https://mirrors.creativecommons.org/presskit/icons/cc.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;"><img src="https://mirrors.creativecommons.org/presskit/icons/by.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;"><img src="https://mirrors.creativecommons.org/presskit/icons/nc.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;"><img src="https://mirrors.creativecommons.org/presskit/icons/nd.svg" alt="" style="max-width: 1em;max-height:1em;margin-left: .2em;">
